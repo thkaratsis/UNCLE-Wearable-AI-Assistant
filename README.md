@@ -1,1 +1,0 @@
-# UNCLE-Wearable-AI-Assistant
